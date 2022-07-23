@@ -1,2 +1,1 @@
-# hello-world
-hello word fuck you 
+i ma one da sha bi 
